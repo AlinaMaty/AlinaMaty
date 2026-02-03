@@ -38,8 +38,6 @@
 
 ## Контакты
 
-📞 +7 926 289 89 81
-
 ✉️ [Email](alinamaty@gmail.com)
 
-📲 [Telegram](@AlinaMaty)
+📲 [Telegram](@maty_alina)
